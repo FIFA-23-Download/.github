@@ -18,6 +18,10 @@ If you’re still wondering whether FIFA 23 is worth playing or looking for tips
   <img src="https://img.shields.io/badge/Download-blue?logo=Download&logoColor=white&style=for-the-badge" alt="Download"/>
 </a>
 
+![nt2l06y3bl2a1](https://github.com/user-attachments/assets/6dc54594-cd44-4d35-8930-cdcd9e63d666)
+
+
+
 ## ✅ Why FIFA 23 Is Still Relevant in 2025
 While newer titles like EA SPORTS FC have taken the spotlight, FIFA 23 remains highly popular due to several reasons:
 
